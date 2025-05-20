@@ -2,7 +2,7 @@
 - 👀 I’m interested in C++ programming.
 - 🌱 I’m currently studying as Bachelor of Computer Science at University of Wollongong.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me --> mohanxin521@outlook.com
+- 📫 How to reach me --> ivenyan876@gmail.com
 - 😄 Pronouns: Mr. Yan
 - ⚡ Fun fact: ...
 
